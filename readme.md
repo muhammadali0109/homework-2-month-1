@@ -1,0 +1,2 @@
+## Abduqahharovv Muhammadali
+### tasks
